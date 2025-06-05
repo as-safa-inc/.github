@@ -1,4 +1,4 @@
-![as-safa-git](https://github.com/user-attachments/assets/5dc25d84-b2f7-4e39-8973-1f2a23b7f3c6) <!-- Replace with actual logo if needed -->
+![as-safa-git](https://github.com/user-attachments/assets/bc772c88-a387-4c53-a581-b329e07a661e)
 
 # Get Involved with As-Safa Inc
 
