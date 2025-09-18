@@ -2,7 +2,7 @@
 
 # Get Involved with As-Safa Inc
 
-**As-Safa Inc** is a healthtech company committed to transforming patient care through innovation. Guided by our motto, **Healthcare Redesigned**, we’re building technology-driven solutions that empower both patients and providers.
+**As-Safa Inc** is a healthtech company committed to transforming patient care through innovation. Guided by our motto, **Redesigning Healthcare**, we’re building technology-driven solutions that empower both patients and providers.
 
 ## 🚀 Join the Movement
 
